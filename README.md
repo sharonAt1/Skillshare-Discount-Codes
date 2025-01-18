@@ -1,4 +1,4 @@
-**Skillshare Discount Codes 2025**
+**Skillshare Discount Code (2025) - Get Upto 50% OFF**
 ==================================
 
 ![Skillshare Feature Images](https://github.com/sharonAt1/Skillshare-Discount-Codes/blob/main/SkillShare/Image/skillshare%20feature%20image.png)
